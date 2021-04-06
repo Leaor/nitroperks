@@ -1,4 +1,5 @@
 # nitroperks
 
 Get Any Emoji Without Nitro on discord LMAO
-https://external-content.duckduckgo.com/iu/?u=https%3A%2F%2Fi.ytimg.com%2Fvi%2FpsIIWROIvtM%2Fmaxresdefault.jpg&f=1&nofb=1
+![download](https://user-images.githubusercontent.com/74433811/113645337-ae435680-9654-11eb-8e2f-57e913550d36.gif)
+
